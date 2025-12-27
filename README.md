@@ -1,0 +1,115 @@
+# ATEEZ – BOUNCY (K-HOT CHILLI PEPPERS)
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:00.99] What you gonna say? (Yeah)
+[00:03.16] Sit back and relax man
+[00:04.75] Don't you wanna bet, man?
+[00:06.64] I got time but it's not for you, bro
+[00:07.85] Don't you realize what I'm saying?
+[00:09.24] What you gonna do? (Let's go, let's go)
+[00:11.38] Ay, let's go
+[00:17.38] 
+[00:12.65] One, two 열중쉬어
+[00:14.12] Three, four 하면 후
+[00:15.58] 리듬에 맞춰
+[00:17.32] 흔들어라 머리
+[00:18.92] 거칠 것 없지
+[00:20.44] 우릴 막아 봐
+[00:22.06] 모든 건 unlock
+[00:23.68] Now it's time for the party
+[00:25.70] 아직 배고파
+[00:26.89] 우린 젊기에 (Hey)
+[00:28.73] 비켜봐
+[00:30.42] 'Cause we need some air
+[00:31.68] 묶여 있었던 모든 걸 풀어내
+[00:35.49] 멈춘 채 살 순 없어
+[00:40.99] 
+[00:38.60] Bring back microphone 볼륨 올려
+[00:42.00] Sit back and relax, everybody
+[00:44.66] 느껴봐라 이게 우리 소리야
+[00:47.73] Come on, everybody
+[00:56.73] 
+[00:49.67] Slow it down, make it bouncy
+[00:52.62] 지금부터 fly
+[00:54.55] 좀 다른 spicy
+[00:55.75] 청양고추 vibe
+[00:57.18] If you wanna know how
+[00:59.07] I can show you right now
+[01:00.36] 우린 만들지 bouncy
+[01:02.47] 불이 붙어 fly
+[01:06.97] 
+[01:03.87] Yo, make it bouncy
+[01:05.73] 지금부터 fly
+[01:07.22] 좀 다른 spicy
+[01:08.46] 청양고추 vibe
+[01:10.04] If you wanna know how
+[01:11.68] I can show you right now
+[01:13.16] 고갤 저어 bounce, bounce
+[01:14.89] 하늘 위로 fly, fly
+[01:21.89] 
+[01:17.03] Slow it down, make it bouncy
+[01:18.28] 지금부터 Fly
+[01:19.64] FIX ON!
+[01:23.14] 
+[01:19.98] 고개를 하늘 위로 들어
+[01:21.56] 앞 뒤 양 옆 내 말 들어
+[01:23.13] S-O-N-G-M-I-N-G-I
+[01:24.77] Gonna know it's over (Ayy)
+[01:26.67] 출신 위치 나이 종교 나라까지
+[01:27.95] 허물없이 전부 It doesn't matter (Matter)
+[01:29.47] 미칠 대로 미친 사람들과
+[01:31.37] 막 과열 직전까지 털어
+[01:32.55] Yeah, want it, want it and
+[01:33.46] Burn it, burn it, 또 놀아 보자 더
+[01:34.42] 뜨거워 여긴
+[01:35.79] 튀어 올라봐 높이 더 높이
+[01:37.34] 터진다 터져 날아라 멀리
+[01:40.55] Gimme, 분위기를 뺏지
+[01:42.25] 따라 추던가 넌 백기
+[01:43.79] 그것도 못 하면 때찌
+[01:49.29] 
+[01:45.64] Bring back microphone 볼륨 올려 (Everybody)
+[01:49.42] Sit back and relax everybody (Everybody)
+[01:51.94] 느껴봐라 이게 우리 소리야
+[01:55.10] ONE, TWO, THREE!
+[02:03.10] 
+[01:57.39] Slow it down, makе it bouncy
+[01:59.87] 지금부터 fly
+[02:01.43] 좀 다른 spicy
+[02:03.03] 청양고추 vibe
+[02:04.53] If you wanna know how
+[02:06.12] I can show you right now
+[02:07.50] 우린 만들지 bouncy
+[02:09.31] 불이 붙어 fly
+[02:13.81] 
+[02:10.94] Yo, make it bouncy
+[02:12.48] 지금부터 fly
+[02:14.05] 좀 다른 spicy
+[02:15.73] 청양고추 vibe
+[02:17.03] If you wanna know how
+[02:18.99] I can show you right now
+[02:20.29] 고갤 저어 bouncе, bounce
+[02:22.31] 하늘 위로 fly, fly
+[02:29.31] 
+[02:23.63] 세상 위를 뛰어 봐
+[02:26.77] 하늘 위로 날아 봐
+[02:30.26] 리듬 안에 모여라
+[02:33.49] 하나 되어 Shout it out
+[02:42.49] 
+[02:36.22] Slow it down, make it bouncy
+[02:38.19] 지금부터 fly
+[02:39.78] 좀 다른 spicy
+[02:41.67] 청양고추 vibe
+[02:42.94] If you wanna know how
+[02:44.44] I can show you right now
+[02:45.75] 고갤 저어 bounce, bounce
+[02:47.68] 하늘 위로 fly, fly
+[02:54.68] 
+[02:49.16] Oh, oh-oh
+[02:55.50] If you wanna know how
+[02:57.39] I can show you right now
+[02:58.94] 고갤 들어 Bounce bounce
+[03:00.47] 하늘 위로 Fly fly
+```
